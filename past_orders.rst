@@ -19,3 +19,11 @@ Stickers
   and non-rounded corners. These come precut, making them easy to give out
   individually. We give away quite a few of them, though people don't seem as
   excited by them as by the smaller, shinier stickers.
+  
+- uprinting.com: June 2015 I ordered 600 from a new project.jupyter@gmail.com account:
+  1"x1" square
+  Roll Stickers
+  Front Only
+  Gloss Indoor Laminate
+  White BOPP (Indoor)
+  Square (Rounded Corners)
